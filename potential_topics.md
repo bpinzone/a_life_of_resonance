@@ -20,9 +20,9 @@ communication as the heart of reality
 
 words, creation, confession, and the eucharist
 
-maths, math, free will, materialism, and a personal God.
+minds, math, free will, materialism, and a personal God.
 
-academic Institutionalisation and beauty
+academic Institutionalization and beauty
 
 emotions power the journey
 
